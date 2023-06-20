@@ -1,4 +1,4 @@
-<img src="Humilde Progreso.png" width="128"/> 
+<img src="Humilde Progreso.png" width="128"/>
 # 🇪🇸 Humilde Progreso 2027 🫒🇪🇸 
 Aquí no diferenciamos 
 al hombre de la mujer
