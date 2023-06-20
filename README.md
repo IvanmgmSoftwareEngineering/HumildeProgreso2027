@@ -29,6 +29,6 @@ y luchamos para que sea
 
 - Se seguirán pagando las pensiones.
 
-- Despido masivo del 90% de los 2,4 millones de Servidores y Servidoras Públicas, ell@s pasarán al colectivo de pensionistas con una pensión asignada acorde a si la persona hubiera llevado a cabo toda su vida laboral en el puesto. (NIP (Nota interna partido): está medida está enfocada a recortar gastos ya que si las cuentas no me fallan los salarios que perciben los Servidores y Servidores Públicos  son mayores 
+- Despido masivo del 90% de los 2,4 millones de Servidores y Servidoras Públicas, ell@s pasarán al colectivo de pensionistas con una pensión asignada acorde a si la persona hubiera llevado a cabo toda su vida laboral.
 
 
