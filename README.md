@@ -1,5 +1,5 @@
-<img src="Humilde Progreso.png" width="128"/> # 🇪🇸 Humilde Progreso 2027 🫒🇪🇸 
-## 🐲 UNA GRANDE LIBRE 🐲
+<img src="Humilde Progreso.png" width="128"/> 
+# 🇪🇸 Humilde Progreso 2027 🫒🇪🇸 
 Aquí no diferenciamos 
 al hombre de la mujer
 ni a la izquierda de la derecha
