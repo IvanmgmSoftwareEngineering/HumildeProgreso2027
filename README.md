@@ -6,9 +6,9 @@ Aquí no diferenciamos
 al hombre de la mujer
 ni a la izquierda de la derecha
 aquí solo queremos a España 
-y luchamos para que sea 
+y luchamos para que sea UNA GRANDE LIBRE 🇪🇸
 
-## UNA GRANDE LIBRE
+## PROGRAMA POLÍTICO:
 
 - 💸 Eliminación del cash (efectivo), todo se paga con tarjeta de débito o de crédito 💳
   - 💳 Creación de sistema de pago con tarjetas de débito y de crédito en paralelo al que gestionan empresas privadas (VISA, MasterCard, AmericanExpress)
